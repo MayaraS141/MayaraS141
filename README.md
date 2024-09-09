@@ -14,3 +14,5 @@ e compartilhamento dos meu projetos desenvolvidos
 ### Você pode entrar em contato comigo 📫
 
 mayarasilvadosprazeres1@email.com
+
+![descrição do GIF](https://media1.tenor.com/m/s--312__jnoAAAAC/kermit-kermit-love.gif)
